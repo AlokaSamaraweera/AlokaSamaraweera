@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on creative projects
 - 📫 How to reach me alokamadurabashini@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: K-pop lover
+- ⚡ Fun fact: K-pop lovie
 
 <!---
 AlokaSamaraweera/AlokaSamaraweera is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
