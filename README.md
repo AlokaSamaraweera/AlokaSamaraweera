@@ -6,8 +6,7 @@
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: K-pop lovie
 
-## hi
-lets go!
+
 
 <!---
 AlokaSamaraweera/AlokaSamaraweera is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
